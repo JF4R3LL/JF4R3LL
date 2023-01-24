@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de JF4R3LL ou se preferir só F4R3LL para os mais chegados 😁
+## Bem-vindo(a) ao perfil de JF4R3LL 😁
 
  <div>
    <a href="https://github.com/JF4R3LL">
